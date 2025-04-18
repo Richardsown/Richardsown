@@ -1,6 +1,5 @@
 I am Jonas Nyirenda a teacher by profession based in Chama district of Eastern province
-I am doing Bachelors of Science with Education (B.Ed ICT & Mathematics) at Rockview university - Chipata campus 
-I am a passionate and dedicated educator devoting my career to shaping young minds and fostering academic excellence with a strong foundation in ICT and Mathematics
+doing Bachelors of Science with Education (B.Ed ICT & Mathematics) at Rockview university - Chipata campus 
+who is a passionate and dedicated educator devoting my career to shaping young minds and fostering academic excellence with a strong foundation in ICT and Mathematics
 I have the ability to adapt teaching methods to suit proficient in integrating technology into the classroom
-I am passionate about empowering students with the knowledge and skills necessary to succeed in an ever-evolving world.
-I aim at making a lasting impact on the lives of my students and the community
+I am passionate about empowering students with the knowledge and skills necessary to succeed in an ever-evolving world aiming at making a lasting impact on the lives of my students and the community
